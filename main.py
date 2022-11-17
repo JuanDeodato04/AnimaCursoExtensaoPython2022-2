@@ -1,1 +1,0 @@
-# Próxima aula dia 16/11/2022
